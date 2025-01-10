@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **Anasobaid770@outlook.com**
 
-- ⚡ Fun fact **Are you tracking me?!**
+- ⚡ Fun fact **Think about it**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
