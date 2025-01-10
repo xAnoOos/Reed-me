@@ -7,8 +7,6 @@
 
 - 📫 How to reach me **Anasobaid770@outlook.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1e7wZVvDDTtboUpT4X_7WGZyGWAUJXX4HbdA30yZBE8g/edit?usp=sharing](https://docs.google.com/document/d/1e7wZVvDDTtboUpT4X_7WGZyGWAUJXX4HbdA30yZBE8g/edit?usp=sharing)
-
 - ⚡ Fun fact **Are you tracking me?!**
 
 <h3 align="left">Connect with me:</h3>
