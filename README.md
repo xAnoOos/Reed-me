@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Anas Obaid</h1>
-<h3 align="center">A passionate frontend developer from Palestine</h3>
+<h3 align="center">A passionate Full-stack developer from Palestine</h3>
 
 - 🔭 I’m currently working on [Lite Anime](www.liteanime.com)
 
