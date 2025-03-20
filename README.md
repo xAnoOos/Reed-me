@@ -3,8 +3,6 @@
 
 - 🔭 I’m currently working on [Lite Anime](www.liteanime.com)
 
-- 📝 I regularly write articles on [Webnovel.com](Webnovel.com)
-
 - 📫 How to reach me **Anasobaid770@outlook.com**
 
 - ⚡ Fun fact **Think about it**
